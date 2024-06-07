@@ -1,6 +1,6 @@
-- 👋 Hi, I’m abhishek raj
+- 👋 Hi, I’m Abhishek Raj
 - 👀 I’m interested in listening music.
-- 🌱 I have just completed class 12th in 2021 with BSEB.
+- 🌱 I am currently pursuing BBA from SMVDU.
 - 💞️ I’m looking to collaborate on new idea.
 - 📫 How to reach me i don't know.
 
